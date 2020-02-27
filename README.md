@@ -1,1 +1,0 @@
-# GerardRC17.github.io
